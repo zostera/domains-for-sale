@@ -16,7 +16,7 @@ All prices are excluding VAT. You will receive an invoice from [Zostera B.V.](ht
 
 For more information, please contact [info@zostera.nl](mailto:info@zostera.nl).
 
-## Dutch
+## Nederlands
 
 De onderstaande domeinen zijn te koop:
 
